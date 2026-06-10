@@ -1,4 +1,4 @@
-# 
+# VIP low-frequency trading bot complementos para Mac OS | Principal low-frequency trading bot complementos para PC Windows. Con seguridad de clave privada y pools de liquidez DEX — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
